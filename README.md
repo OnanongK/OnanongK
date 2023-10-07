@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @OnanongK
-- 👀 I’m interested Quick solution and I don't have much knowledge to improve computer and mobile systems. and accelerate change 
-- 🌱 I’m currently learning A more private way of using it and accelerating the solution of problems with credit card theft. 
-- 💞️ I’m looking to collaborate on People with expertise Join in fixing and closing my gaps.  
+- 👀 I’m interested Quick solution and I don't have much knowledge to improve computer and mobile systems. and  change 
+- 🌱 I’m interested learning A more private way of using it and accelerating the solution of problems with credit. 
+- 💞️ I’m looking to collaborate on People with expertise Join in fixing and closing my gaps.For learning and editing at the same time  
 - 📫 How to reach me 
 
 <!---
